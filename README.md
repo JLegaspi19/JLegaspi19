@@ -1,2 +1,2 @@
-- 🖥️ Owner of [NRGBuilds]([https://link.com](https://www.jawa.gg/sp/35131/nrgbuilds))
+- 🖥️ Owner of [NRGBuilds](https://link.com](https://www.jawa.gg/sp/35131/nrgbuilds)
 - ✏️ Studying Computer Engineering at SDSU
